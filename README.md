@@ -1,0 +1,1 @@
+# szerda-gyak
